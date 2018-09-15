@@ -1,4 +1,4 @@
-# My Favorite videos, Articles, and Blog Posts
+# My Favorite Videos, Articles, and Blog Posts
 
 ## Videos/Conference Talks
 
